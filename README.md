@@ -15,4 +15,4 @@ info
 - collective pronouns: he/they/slime + neos (always ask)
 
 dni if:
-- if ur on shtwt/edtwt, fakeclaimers, proshippers, racism/zionist/anti-lgbtia, etc.
+- if ur on shtwt/edtwt, fakeclaimers, pro/comshippers, racism/zionist/anti-lgbtia, etc.
