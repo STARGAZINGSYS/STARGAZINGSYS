@@ -3,6 +3,7 @@
 
 hi ! we're the stargazer system! :]
 
+- please don't copy our ponies unless you ask for permission! it takes us a few hours to make some of these skins.
 - we're usually pretty active on ponytown but there may be bursts of inactivity because we have responsibilities
 - be warned that we will NOT friend you on ponytown if we haven't talked a decent amount. at least a few days worth
 - only people we trust will be given our discord, but feel free to ask us for it if we've friended you :]
