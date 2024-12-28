@@ -10,7 +10,7 @@ hi ! we're the stargazer system! :]
 - most info is on our rentry so please be sure to check that first. but in case ur in a hurry i'll put the important info here.
 - usually we're these ponies below, but it may vary depending on the fronter!
 
-<img src="https://i.imgur.com/ExXHzZg.png" width=20% height=20%> <img src="https://i.imgur.com/pgsaKhj.png" width=20% height=20%> <img src="https://i.imgur.com/GohJCes.png" width=20% height=20%> <img src="https://i.imgur.com/ErQohOB.png" width=20% height=20%>
+<img src="https://i.imgur.com/412CYC8.png" width=20% height=20%> <img src="https://i.imgur.com/pgsaKhj.png" width=20% height=20%> <img src="https://i.imgur.com/GohJCes.png" width=20% height=20%> <img src="https://i.imgur.com/ErQohOB.png" width=20% height=20%>
 
 **INFO**
 ------------------------------------------------------------------------------
