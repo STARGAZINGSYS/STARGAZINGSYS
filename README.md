@@ -3,6 +3,8 @@
 
 hi ! we're the stargazer system! :]
 
+we're usually on 18+ on ponytown, but occasionally go on safe with friends.
+
 - please don't copy our ponies unless you ask for permission! it takes us a few hours to make some of these skins.
 - we're usually pretty active on ponytown but there may be bursts of inactivity because we have responsibilities
 - be warned that we will NOT friend you on ponytown if we haven't talked a decent amount. at least a few days worth
