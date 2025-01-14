@@ -21,5 +21,7 @@ we're usually on 18+ on ponytown, but occasionally go on safe with friends.
 - collective name: eddy, albion or orion
 - collective pronouns: he/they/slime + neos (always ask)
 
+we are usually off tab or afk, so whisper if you wanna chat! depending on the headmate in question we may not respond though
+
 dni if:
 - if ur on shtwt/edtwt, fakeclaimers, pro/comshippers, racism/zionist/anti-lgbtia, etc.
