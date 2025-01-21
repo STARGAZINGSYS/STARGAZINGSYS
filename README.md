@@ -18,7 +18,7 @@ we're usually on 18+ on ponytown, but occasionally go on safe with friends.
 ------------------------------------------------------------------------------
 - osdd/did system
 - adult (21)
-- collective name: eddy, albion or orion
+- collective name: eddy, star or orion
 - collective pronouns: he/they/slime + neos (always ask)
 
 we are usually off tab or afk, so whisper if you wanna chat! depending on the headmate in question we may not respond though
