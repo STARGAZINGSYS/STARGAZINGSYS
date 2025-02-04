@@ -1,7 +1,7 @@
 **STARGAZING ⸝⸝ ⋆ ✩**
 -------------------------------------------------------------------------------
 
-hi ! we're the Stargazer System! :]
+Hi ! we're the Stargazer System! :]
 
 we're usually on 18+ on Ponytown, but occasionally go on Safe with friends.
 
