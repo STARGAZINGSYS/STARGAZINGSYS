@@ -1,9 +1,9 @@
 **STARGAZING ⸝⸝ ⋆ ✩**
 -------------------------------------------------------------------------------
 
-hi ! we're the stargazer system! :]
+hi ! we're the Stargazer System! :]
 
-we're usually on 18+ on ponytown, but occasionally go on safe with friends.
+we're usually on 18+ on Ponytown, but occasionally go on Safe with friends.
 
 - please don't copy our ponies unless you ask for permission! it takes us a few hours to make some of these skins.
 - we're usually pretty active on ponytown but there may be bursts of inactivity because we have responsibilities
