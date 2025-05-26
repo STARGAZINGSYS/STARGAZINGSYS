@@ -1,6 +1,6 @@
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**STARGAZING ⸝⸝ ⋆ ✩**
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**STARGAZING ⸝⸝ ⋆ ✩**
 -------------------------------------------------------------------------------
-
+![](https://i.imgur.com/v2ak4Hg.png)
 Hi ! we're the Stargazer System! :]
 
 We're usually on 18+ on Ponytown, but occasionally go on Safe with friends.
@@ -11,14 +11,16 @@ We're usually on 18+ on Ponytown, but occasionally go on Safe with friends.
 - Only people we trust will be given our Discord, but feel free to ask us for it if we've friended you :]!!
 - Most info is on our rentry and strawpages, so please be sure to check that first. But in case ur in a hurry we put the important info down there V.
 
-**INFO**
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**INFO**
 ------------------------------------------------------------------------------
-- osdd/did system
-- adult (21)
-- collective name: eddy, star or orion
-- collective pronouns: he/they/slime + neos (always ask)
+![](https://i.imgur.com/v2ak4Hg.png)
+- We're a OSDD system, traumagenic and chronically disabled.
+- Adult (21), minors can interact but be appropriate with us please (no NSFW comments, jokes, etc)
+- Collective Name: Eddy, Orion, Star, Astra
+- Collective Pronouns: he/they/slime + neos (always ask)
+- If you want to know, please click our links!!
 
-we are usually off tab or afk, so whisper if you wanna chat! depending on the headmate in question we may not respond though
+We are usually off tab or afk, so whisper if you wanna chat! Depending on the headmate in question we may not respond though, as we sometimes don't want to talk or are too shy.
 
-dni if:
-- if ur on shtwt/edtwt, fakeclaimers, pro/comshippers, racism/zionist/anti-lgbtia, etc.
+DNI if:
+- If ur on shtwt/edtwt, are fakeclaimers, pro/comshippers, racism/zionist/anti-lgbtia, pro endo, etc.
