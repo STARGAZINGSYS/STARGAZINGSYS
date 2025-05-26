@@ -3,13 +3,13 @@
 
 Hi ! we're the Stargazer System! :]
 
-we're usually on 18+ on Ponytown, but occasionally go on Safe with friends.
+We're usually on 18+ on Ponytown, but occasionally go on Safe with friends.
 
-- please don't copy our ponies unless you ask for permission! it takes us a few hours to make some of these skins.
-- we're usually pretty active on ponytown but there may be bursts of inactivity because we have responsibilities
-- be warned that we will NOT friend you on ponytown if we haven't talked a decent amount. at least a few days worth
-- only people we trust will be given our discord, but feel free to ask us for it if we've friended you :]
-- most info is on our rentry so please be sure to check that first. but in case ur in a hurry i'll put the important info here.
+- Please don't copy our ponies unless you ask for permission! It takes us a few hours to make some of these skins.
+- We're usually pretty active on Ponytown, but there may be bursts of inactivity because we have responsibilities.
+- Be warned that we will NOT friend you on Ponytown if we haven't talked a decent amount. At least a few days worth.
+- Only people we trust will be given our Discord, but feel free to ask us for it if we've friended you :]!!
+- Most info is on our rentry and strawpages, so please be sure to check that first. But in case ur in a hurry we put the important info down there V.
 
 **INFO**
 ------------------------------------------------------------------------------
