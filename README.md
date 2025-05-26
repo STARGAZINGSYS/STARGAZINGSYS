@@ -5,6 +5,8 @@ Hi ! we're the Stargazer System! :]
 
 We're usually on 18+ on Ponytown, but occasionally go on Safe with friends.
 
+We are usually off tab or afk, so whisper if you wanna chat! Depending on the headmate in question we may not respond though, as we sometimes don't want to talk or are too shy.
+
 - Please don't copy our ponies unless you ask for permission! It takes us a few hours to make some of these skins.
 - We're usually pretty active on Ponytown, but there may be bursts of inactivity because we have responsibilities.
 - Be warned that we will NOT friend you on Ponytown if we haven't talked a decent amount. At least a few days worth.
@@ -19,8 +21,6 @@ We're usually on 18+ on Ponytown, but occasionally go on Safe with friends.
 - Collective Name: Eddy, Orion, Star, Astra
 - Collective Pronouns: he/they/slime + neos (always ask)
 - If you want to know, please click our links!!
-
-We are usually off tab or afk, so whisper if you wanna chat! Depending on the headmate in question we may not respond though, as we sometimes don't want to talk or are too shy.
 
 DNI if:
 - If ur on shtwt/edtwt, are fakeclaimers, pro/comshippers, racism/zionist/anti-lgbtia, pro endo, etc.
