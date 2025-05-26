@@ -20,7 +20,7 @@ We are usually off tab or afk, so whisper if you wanna chat! Depending on the he
 - Adult (21), minors can interact but be appropriate with us please (no NSFW comments, jokes, etc)
 - Collective Name: Eddy, Orion, Star, Astra
 - Collective Pronouns: he/they/slime + neos (always ask)
-- If you want to know, please click our links!!
+- If you want to know more, please click our links!!
 
 DNI if:
-- If ur on shtwt/edtwt, are fakeclaimers, pro/comshippers, racism/zionist/anti-lgbtia, pro endo, etc.
+- If ur on shtwt/edtwt, fakeclaimers, pro/comshippers, racism/zionist/anti-lgbtia, pro endo, etc.
