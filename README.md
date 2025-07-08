@@ -1,7 +1,7 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**ANGELITES ♱**
 -------------------------------------------------------------------------------
 ![](https://i.imgur.com/v2ak4Hg.png)
-Hi ! we're the Stargazer System! :]
+Hi ! we're the Angelites / Seraphim System! :]
 
 We're usually on 18+ on Ponytown, but occasionally go on Safe with friends.
 
