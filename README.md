@@ -1,6 +1,6 @@
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**ANGELITES ♱**
 -------------------------------------------------------------------------------
-![](https://i.imgur.com/v2ak4Hg.png)
+![](https://i.imgur.com/cbM7GTa.png)
 Hi ! we're the Angelites / Seraphim System! :]
 
 We're usually on 18+ on Ponytown, but occasionally go on Safe with friends.
@@ -15,7 +15,7 @@ We are usually off tab or afk, so whisper if you wanna chat! Depending on the he
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀**INFO**
 ------------------------------------------------------------------------------
-![](https://i.imgur.com/v2ak4Hg.png)
+![](https://i.imgur.com/cbM7GTa.png)
 - We're a OSDD system, traumagenic and chronically disabled.
 - Adult (21), minors can interact but be appropriate with us please (no NSFW comments, jokes, etc)
 - Collective Name: Eddy, Orion, Star, Astra
